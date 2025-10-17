@@ -7,7 +7,7 @@ Computer Science and Biology student at Northeastern University with experience 
 - **Email:** zach@zharel.me
 - **Website:** https://zharel.me/
 - **GitHub:** https://github.com/zachwaffle4
-- **Phone:** (516) 460-
+- **Phone:** (516) 460-2295
 
 ## Education
 
